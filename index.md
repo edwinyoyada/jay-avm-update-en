@@ -4,6 +4,8 @@ Klik [di sini](https://edwinyoyada.github.io/jay-avm-update/) untuk Bahasa Indon
 Today, Jayden could go home from Siloam Hospital TB Simatupang after the DSA procedure.
 ![939B26F2-E9A3-4450-8D7A-FF42FAA3DD24](https://user-images.githubusercontent.com/5466522/145242676-f06092ea-7fcf-4fda-9e62-5e7fc9f6751c.JPG)
 
+He's scheduled for a meeting with the doctor who will run the Gamma Knife procedure on Wednesday, 15th December 2021
+
 ## Donation Update
 KitaBisa Account Rp. 243.589.017
 
